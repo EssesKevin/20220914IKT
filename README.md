@@ -7,5 +7,5 @@
 
 [Konfliktus.docx](https://github.com/EssesKevin/20220914IKT/files/9754143/Konfliktus.docx)--> 2022.10.11
 
-[Konfliktus.docx](https://github.com/EssesKevin/20220914IKT/files/9799625/Konfliktus.docx)-->2 022.09.17
+[Konfliktus.docx](https://github.com/EssesKevin/20220914IKT/files/9799625/Konfliktus.docx)
 
